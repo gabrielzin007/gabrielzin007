@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+![](https://media.tenor.com/8siMDYo74AQAAAAC/cassio-corinthians.gif)
 <!--
 **gabrielzin007/gabrielzin007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
